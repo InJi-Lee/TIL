@@ -2,11 +2,11 @@
 
 ***
 
-***Step 1***   Write every day
+***Step 1***      _Write every day
 
-***Step 2***   Self-directed writing
+***Step 2***      _Self-directed writing
 
-***Step 3***   Work hard not to regret
+***Step 3***      _Work hard not to regret
 
 ***
 
